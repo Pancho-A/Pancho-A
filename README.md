@@ -1,4 +1,4 @@
-- 🌱 I’m currently learning ...
+- 🌱 Ready to conquer the peaks!!!
 
 
 <!---
